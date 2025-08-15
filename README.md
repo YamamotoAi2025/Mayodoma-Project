@@ -62,18 +62,6 @@ While my base may change in the future, **my vehicles are my true home** — the
 
 ---
 
-## 🐾 Anecdote: The “Hearse” Confusion
-
-One of my creations, the **MD-01**, has often been mistaken as a hearse for pets.  
-It’s a minimalistic black design created during the COVID era — a “work-utility spiritual vehicle” meant for solitude, not sadness.
-
-Interestingly, during Japan’s luxury boom around 1990, a Middle Eastern monarch famously requested a **shiny golden Japanese hearse** during his visit — because it was so unique and stunning.
-
-I see **MD-01** as the opposite: quiet, thoughtful, wabi-sabi — yet still remarkable.  
-This contrast shows how **my work may resonate differently and unexpectedly with people around the world**.
-
----
-
 
 
 ## ✍ Final Words
