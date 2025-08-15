@@ -43,7 +43,7 @@ In the Mayodoma Series, I design and build vehicles that serve not only as trans
 
 ## 🌍 Production Site & Future
 
-The current production site is located in **Makino, Takashima City, Shiga Prefecture, Japan**.  
+The current production site is located in **Shiga Prefecture, Japan**.  
 This is a geographically significant area:  
 - Inland basin, safe from ocean rise  
 - Rich in natural freshwater from **Lake Biwa**, Japan's largest freshwater lake  
